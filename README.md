@@ -14,6 +14,8 @@
 
 ![WhatsApp Image 2025-11-13 at 15 03 15](https://github.com/user-attachments/assets/d0c753aa-a0ca-4708-a84a-61d530ef44b2)
 
+<img width="1452" height="815" alt="02" src="https://github.com/user-attachments/assets/d8f6b6a8-ca94-4c8b-9bbb-a8d13c43bed1" />
+
 ![WhatsApp Image 2025-11-13 at 15 03 15 (2)](https://github.com/user-attachments/assets/66b07dd9-4ca8-47a6-bcfa-86ebd29e6feb)
 
 ![WhatsApp Image 2025-11-13 at 15 03 16](https://github.com/user-attachments/assets/b60dee15-8339-44f8-ac16-a6f648d9f984)
