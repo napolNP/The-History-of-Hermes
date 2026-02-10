@@ -68,7 +68,13 @@
 
 ![WhatsApp Image 2025-11-13 at 15 03 29 (2)](https://github.com/user-attachments/assets/350fb577-4a9c-4a18-85b4-b023af370d07)
 
-![WhatsApp Image 2025-11-13 at 15 03 29 (3)](https://github.com/user-attachments/assets/b67855d1-ba25-43bc-bc42-dcf3686276dc)
+<img width="1452" height="816" alt="7" src="https://github.com/user-attachments/assets/32cf6380-c231-4925-aa70-c213aac9d8e0" />
+
+<img width="1452" height="820" alt="8" src="https://github.com/user-attachments/assets/d791a779-aa74-48a2-a1a6-96a59c5cae6b" />
+
+<img width="1456" height="818" alt="9" src="https://github.com/user-attachments/assets/2944d952-2709-405d-9281-5bf798a60ce1" />
+
+
 
 
 
